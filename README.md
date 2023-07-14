@@ -18,9 +18,11 @@
 山东大学转专业难度和具体流程如何？ - FJSVM的回答 - 知乎
 https://www.zhihu.com/question/398236688/answer/2489073608
 
-转入山大软院的体验（大二上学期）
+转入山大软院的体验（大二上学期） - FJSVM的文章 - 知乎
+https://zhuanlan.zhihu.com/p/610532632
 
-转入山大软院的体验（大二下学期）
+转入山大软院的体验（大二下学期） - FJSVM的文章 - 知乎
+https://zhuanlan.zhihu.com/p/642599363
 
 ---
 
